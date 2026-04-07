@@ -1,0 +1,1 @@
+nepali DUDBC norms breakdown
